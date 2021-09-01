@@ -1,4 +1,4 @@
 
-## Taquitos Shop
+## Taquitos Shop 🌮
 
-Yes, you read right it's a taquitos shop
+Yes, you read right it's a taquitos shop 🌮
